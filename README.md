@@ -2,8 +2,8 @@
 - 👀 I’m interested in Taylor Swift, Grey's Anatomy, Karate, and Gaming
 - 🌱 I’m currently learning Theoretical Physics
 - 💞️ I’m looking to collaborate on Relativistic Stars @ the University of Glasgow 
-- 📫 How to reach me - please don't 
-- 😄 Pronouns: He/Him & Cry/Ing
+- 📫 How to reach me ... 
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
 <!---
