@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @Wes-Jin
-- 👀 I’m interested in Taylor Swift, Grey's Anatomy, Karate, and Gaming
-- 🌱 I’m currently learning Theoretical Physics
-- 💞️ I’m looking to collaborate on Relativistic Stars @ the University of Glasgow 
+- 👋 Hi, I’m Wesley Fielding.
+- 🌱 I’m currently studying Theoretical Physics.
 - 📫 How to reach me ... 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
